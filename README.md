@@ -1,3 +1,5 @@
-Hello!! You can call me Noise or literally TJ! (just spelNoise
+Hello!! You can call me Noise or literally TJ! (just spell it)
 
-eng/rus, any pronouns or she/her, whisper to interact, usually offtab!
+
+
+eng/rus, any pronouns but usually she/her or he/him, whisper to interact, usually offtab!
